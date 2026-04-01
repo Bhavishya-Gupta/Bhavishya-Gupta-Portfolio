@@ -1,1 +1,0 @@
-# Bhavishya-Gupta-Portfolio
